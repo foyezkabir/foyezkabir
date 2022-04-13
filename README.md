@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **NLP projects**
 
-- 📫 How to reach me **Kabirwiit00@gmail.com**
+- 📫 How to reach me **foyezkabir00@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
